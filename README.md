@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ps3hasnogames
-- �  have some chocolate 🍫😂
+- �  here have some chocolate 🍫😂
 - 🌱 I’m currently learning ... python
 - 💞️ I’m looking to collaborate on ... idk
 
